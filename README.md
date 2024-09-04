@@ -1,4 +1,4 @@
-## Olá! Seja Bem-vindo ao meu perfil!
+## Olá! Seja bem-vindo ao meu perfil!
 Gosto de Paçoca
 
 
