@@ -3,7 +3,7 @@
 
 
 
-![image](https://media1.tenor.com/m/9jLUbbzK03sAAAAC/john-pork-john-pork-call.gif)
+
 
 
 
